@@ -14,4 +14,4 @@ Dashboard PDF Link:https:https://drive.google.com/file/d/1RoZvHPS7j6arJ68I5WBCeU
 
 PBIX File Link: https://drive.google.com/file/d/1RUJXWQCF9sfoCj3-p79ZkdsKBNtteXVE/view?usp=sharing     
 
-Canva PDF Link:https://drive.google.com/file/d/1Sg0qhW8x1f000Z7t70dM4dagi0oUc6qe/view?usp=sharing
+Canva PDF Link:https: https://drive.google.com/file/d/1ttTa_3B38g7EdcxoJ5Np2IvpItubbnYI/view?usp=sharing
