@@ -7,4 +7,4 @@ Key Higlights:
 1. Contributed to the develpment of intricate KPIs and dynamic, intercative power BI interfaces.
 
 
-   PDF Link:https://drive.google.com/file/d/1fc9ddbDedD4kleVaYoWyAqYEqr4vIBgE/view?usp=sharing
+   PDF Link:https:https://drive.google.com/file/d/1RoZvHPS7j6arJ68I5WBCeUesw1DRlIOm/view?usp=sharing
